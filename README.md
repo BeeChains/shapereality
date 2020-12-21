@@ -1,1 +1,1 @@
-# Welcome here now, manifestations & domains of Inner I Net Company and "SHAPE REALITY" 
+# At Inner I Net Company we "SHAPE REALITY" 
