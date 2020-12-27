@@ -1,4 +1,4 @@
-## [SHAPE REALITY](http://innerinetcompany.shapereality/).
+## SHAPE REALITY/ | a Handshake TLD
 
 | [IINC](https://dlink.iinc.hns.to/) | [Contact](https://innerinetcompany.webflow.icontacto/) |
 
