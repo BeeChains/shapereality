@@ -10,7 +10,9 @@ Get your custom subdomains @ [.shapereality/](https://shapereality.hns.to/) NOW!
 
 # Explore the [Inner I Net Company Store](https://innerinetcompany.mybigcommerce.com/)
 
-- more Top Level Domains [HNS-DOMAINS/](http://home.hns-domains.hns.to/)
+- more [HNS-DOMAINS](http://home.hns-domains.hns.to/)
 
+# Learn on NameBase what Handshake(HNS) is?
 - [The Law Of Time](https://lawoftime.org/)
-
+- [Handshake.org](https://handshake.org/)
+- [NameBase.io](https://namebase.io/)
